@@ -1,2 +1,2 @@
-- 🌱 I’m currently learning at ITI
+🌱 I’m currently learning at ITI
 
